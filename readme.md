@@ -7,4 +7,4 @@
  >>>:computer: компьютерные игры
   >>>>:dog: люблю милых собачек
   
-  ! [милая собачка](https://images.app.goo.gl/QaA2LwQideAQZazy7,бульдог)
+  ! [милая собачка](https://imgur.com/t/dog/s427SCm,бульдог)
